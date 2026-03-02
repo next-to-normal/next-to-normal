@@ -2,7 +2,7 @@
 
 <p align="center">
 
-                  ![](https://i.pinimg.com/736x/b6/5e/bd/b65ebd8a682da7d4cade8c3780cd517d.jpg)
+                  ![](https://cdn.discordapp.com/attachments/1305643727058108458/1478068139039133918/5ec6806a3f366cf651f26ad6467c05d7.jpg?ex=69a70db9&is=69a5bc39&hm=9db0746f46157e2cd7e38c20a742295e08ca4cd0287efe2f3a71c46dd1a5f5b9&)
                            </p>
 
 
