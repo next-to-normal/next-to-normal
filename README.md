@@ -2,7 +2,7 @@
 
 <p align="center">
 
-                  ![](https://cdn.discordapp.com/attachments/1305643727058108458/1478068139039133918/5ec6806a3f366cf651f26ad6467c05d7.jpg?ex=69a70db9&is=69a5bc39&hm=9db0746f46157e2cd7e38c20a742295e08ca4cd0287efe2f3a71c46dd1a5f5b9&)
+                  ![](https://cdn.discordapp.com/attachments/1305643727058108458/1478068695380267241/4fd5326436a0ff2eb888c047ba64e9d1.jpg?ex=69a70e3e&is=69a5bcbe&hm=1ea0e856775af6a009c9971aae4e71d44d5d9f924616e82a98c156e3d938af68&a4cd0287efe2f3a71c46dd1a5f5b9&)
                            </p>
 
 
